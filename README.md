@@ -7,8 +7,4 @@ butjab jaaogo tabhi sawerra
 makka ladle meow ghop ghop ghop
 feasgv
 egsvbsbg
-sb h
-rsde b
-sf bn
-fr bn
-dfn 
+s
